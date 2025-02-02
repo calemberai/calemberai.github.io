@@ -1,0 +1,1 @@
+I am a student in Computer Science and Information Technology with a particular focus on artificial intelligence SaaS solutions, and cybersecurity. I am passion for programming subjects, computer science fundamentals, and machine learning, Manage Network and Data Integrity.
